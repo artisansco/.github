@@ -1,20 +1,18 @@
-# Bezalel Artisans Institute
+# Artisans 
 
-This hybrid name combines Bezalel _(the biblical master craftsman)_ with Artisans _(skilled creators and builders)_, blending divine wisdom with human ingenuity.
+This name represents a fusion of **creativity, innovation, and mastery**, emphasizing the power of skilled craftsmanship in modern technology.  
 
-- **Bezalel** – Named in `Exodus 31:1-5`, Bezalel was gifted by God with wisdom, understanding, and skill to build the Tabernacle. His name means "In the Shadow of God" signifying divine inspiration and mastery.
-- **Artisans** – This term represents creativity, innovation, and craftsmanship, making it relevant to modern technology fields.
+- **Artisans** – Throughout history, artisans have been the builders, designers, and innovators who shape the world. This term embodies **technical excellence, creativity, and problem-solving**, making it an ideal representation of a tech-focused institution.  
 
-> Together, the name reflects a balance of faith, knowledge, and skilled craftsmanship in technology and innovation.
+> The name reflects a commitment to **skill, innovation, and knowledge**, driving forward the next generation of creators and problem-solvers.  
 
-### Meaning & Explanation
+### Meaning & Explanation  
 
-Bezalel was the artisan chosen by God to lead the construction of the Tabernacle _(Exodus 31:1-5)_. <br/> 
-His name means "in the shadow of God," symbolizing divine wisdom, skill, and innovation. <br/>
-God filled him with the Spirit of wisdom, understanding, and knowledge—qualities that are essential in technology and innovation today.
+Artisans are **visionary builders** — whether working with hands, tools, or code. The term honors both **traditional craftsmanship and modern technological ingenuity**, making it a powerful symbol for an institute that nurtures **creators, engineers, and innovators**.  
 
-#### Why It Fits a Tech Institution
+#### Why It Fits
 
-- **Wisdom & Creativity** – Technology requires problem-solving and creativity, just as Bezalel had for building intricate designs.
-- **Innovation & Mastery** – Bezalel was a master craftsman, working with various materials, just like how tech combines multiple disciplines.
-- **Divine Inspiration** – The name reflects the pursuit of knowledge that can benefit humanity while honoring ethical and moral responsibility.
+- **Creativity & Problem-Solving** – Technology is a form of craftsmanship, requiring both skill and imagination.  
+- **Mastery & Innovation** – Like artisans of old, today’s tech pioneers refine their craft through continuous learning and experimentation.  
+- **Ethical & Purpose-Driven** – The name speaks to the responsibility of using technology wisely, for the betterment of humanity.  
+
